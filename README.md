@@ -2,6 +2,8 @@
 
 my discord is SuperMYL#8507
 
-what else do i put here
+you can email me at supermyl69@outlook.com
 
-yay i finally figured out how to use git
+or use that email to contact me on google chat (however im probably gonna be inactive most of the time)
+
+anyways bye now
